@@ -82,6 +82,10 @@ MIT — see [LICENSE](LICENSE).
 
 ---
 
+## 📬 Contact
+
+Open for work and business inquiries — **awaisdev5765@gmail.com**
+
 <div align="center">
 
 *Forecast woven beautifully* 🧵
